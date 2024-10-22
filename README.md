@@ -13,7 +13,7 @@ Sou **UI/UX Designer** apaixonada e agora estou explorando o mundo do **frontend
   - Adobe Illustrator
 - **Hobbies:** 
   - Tomar chá ☕
-  - Jogar jogos cozy 🎮
+  - Jogar e fazer lives na Twitch ~ me segue lá ~ 🎮
   - Escutar J-Pop e K-Pop 🎶
 
 ## 🌷 Projetos
