@@ -27,7 +27,7 @@ Sinta-se à vontade para me seguir nas redes sociais:
 
 - [LinkedIn](https://www.linkedin.com/in/prsvrgs/)
 - [Instagram](https://www.instagram.com/purikoi/)
-- [Twtich](https://www.twitch.tv/purikoi)
+- [Twitch](https://www.twitch.tv/purikoi)
 
 Estou animada para compartilhar ideias e aprender muuuito com você! 💖
 
